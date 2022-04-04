@@ -2,7 +2,7 @@
 수정물산 (2021 성신여대 소프트웨어경진대회)
 성신여대 굿즈 및 학잠 판매 및 구매를 할 수 있는 쇼핑몰 앱
 
-<a href="https://drive.google.com/file/d/1mOE80D7pPpmH0WJroYSrvBaeaNYmZF7o/view?usp=sharing "><img src="https://img.shields.io/badge/ 동영상으로 수정물산 감상하기 click here-D1B2FF?style=flat-square&logo=Undertale&logoColor=white&link=https://drive.google.com/file/d/1mOE80D7pPpmH0WJroYSrvBaeaNYmZF7o/view?usp=sharing "/></a><a href="https://drive.google.com/file/d/1mOE80D7pPpmH0WJroYSrvBaeaNYmZF7o/view?usp=sharing "><img src="https://img.shields.io/badge/-D1B2FF?style=flat-square&logo=Undertale&logoColor=white&link=https://drive.google.com/file/d/1mOE80D7pPpmH0WJroYSrvBaeaNYmZF7o/view?usp=sharing "/></a> **⇦** 해킹을 배우긴 했지만 여긴 해킹되는 사이트가 아니니 안심하고 눌러주세요!ㅎㅎ..
+<a href="https://drive.google.com/file/d/1mOE80D7pPpmH0WJroYSrvBaeaNYmZF7o/view?usp=sharing "><img src="https://img.shields.io/badge/ 동영상으로 수정물산 감상하기 click here-D1B2FF?style=flat-square&logo=Undertale&logoColor=white&link=https://drive.google.com/file/d/1mOE80D7pPpmH0WJroYSrvBaeaNYmZF7o/view?usp=sharing "/></a><a href="https://drive.google.com/file/d/1mOE80D7pPpmH0WJroYSrvBaeaNYmZF7o/view?usp=sharing "><img src="https://img.shields.io/badge/-D1B2FF?style=flat-square&logo=Undertale&logoColor=white&link=https://drive.google.com/file/d/1mOE80D7pPpmH0WJroYSrvBaeaNYmZF7o/view?usp=sharing "/></a>
 
 
 💜수정물산 주요 기능💜
